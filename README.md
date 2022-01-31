@@ -15,3 +15,5 @@
 ## Related
 
 - [All Awesome Lists](https://github.com/topics/awesome) - All the Awesome lists on GitHub.
+- [Awesome Indexed](https://awesome-indexed.mathew-davies.co.uk/) - Search the Awesome dataset.
+- [Awesome Search](https://awesomelists.top/) = Quick search for Awesome lists.
