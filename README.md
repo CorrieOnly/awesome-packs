@@ -55,6 +55,13 @@
 - [Cracking / Hacking #41](https://gofile.io/d/XEs6oZ) - MAKE MONEY TOOLS PACK VOL.2
 - [Cracking / Hacking #42](https://gofile.io/d/c91FC1) - MAKE MONEY TOOLS PACK VOL.1
 - [Cracking / Hacking #43](https://gofile.io/d/2a4tJQ) - BEST RAT PACK COLLECTION VOL.2
+- [Cracking / Hacking #44](https://gofile.io/d/0BO7Ay) - BEST RAT PACK COLLECTION VOL.1
+- [Cracking / Hacking #45](https://gofile.io/d/zTmWPv) - INSTAGRAM COLLECTION TOOLS 2021
+- [Cracking / Hacking #46](https://gofile.io/d/V8hB21) - [NETFLIX ESPECIAL EDITION] CHECKERS - GENERATORS - 10K ACCOUNTS
+- [Cracking / Hacking #47](https://gofile.io/d/oOoiqH) - [SUPER PACK] CHECKERS BY GAZTOOF
+- [Cracking / Hacking #48](https://gofile.io/d/cdL3r8) - [MEGA PACK] CHECKERS BY PRINCE JACK | +60 CHECKERS!
+- [Cracking / Hacking #49](https://gofile.io/d/60hNwI) - [CHECKERS FOR GAMERS V2.0] | CONTENT +30 TOOLS!
+- [Cracking / Hacking #50](https://gofile.io/d/aR9sba) - [MEGA PACK] PROXY TOOLS, GRABBERS AND COMBO TOOLS
 
 ## Related
 
