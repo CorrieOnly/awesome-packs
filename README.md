@@ -39,6 +39,17 @@
 - [Cracking / Hacking #25](https://gofile.io/d/0fhz14) - BOTS AND AUTOMATED TOOLS PACK | AUTOMATE YOUR TASKS NOW!
 - [Cracking / Hacking #26](https://gofile.io/d/nOT3eb) - CHECKERS BY X-GOGARO
 - [Cracking / Hacking #27](https://gofile.io/d/GRcmgz) - CRACKING ESSENTIALS TOOLS V2.0
+- [Cracking / Hacking #28](https://gofile.io/d/nKeLND) - MINECRAFT CRACKING TOOLS PACK V2.0
+- [Cracking / Hacking #29](https://gofile.io/d/1KFOZG) - OPENBULLET ALL VERSIONS | ORIGINAL - ANOMALY - FORLAX - XMOSES - SILVERBULLET
+- [Cracking / Hacking #30](https://gofile.io/d/2DfsRh) - MUSIC STREAMING APPS CRACKING TOOLS | SPOTIFY-DEEZER-TIDAL-PANDORA
+- [Cracking / Hacking #31](https://gofile.io/d/zOBSDF) - BEST COLLECTION FOR GAMERS | 90+ CHECKERS AND TOOLS
+- [Cracking / Hacking #32](https://gofile.io/d/9HS4k0) - DORK PREMIUM PACK | 30+ TOOLS!
+- [Cracking / Hacking #33](https://gofile.io/d/b4C2Wr) - [LEAK CONTENT] HUGE PACKS, CHECKERS, BOTS, PROXIES AND MORE TOOLS AND UTILITIES
+- [Cracking / Hacking #34](https://gofile.io/d/0epMDR) - HACK PACK | CRYPTERS, BINDERS, KEYLOGGERS AND MORE | 90+ TOOLS
+- [Cracking / Hacking #35](https://gofile.io/d/gHG20r) - 25 TOOLS BY TZCRACKING | MINECRAFT-CALL OF DUTY-DISCORD-NORD/EXPRESS/VYPRVPN AND MORE
+- [Cracking / Hacking #36](https://gofile.io/d/BBDz92) - CRYPTO TOOLS AND BOTS | MINING, TRADING BOTS, BRUTE CHECKERS
+- [Cracking / Hacking #37](https://gofile.io/d/iAX4Wg) - NETFLIX CRACKING TOOL PACK 2.0
+- [Cracking / Hacking #38](https://gofile.io/d/93DoVu) - STEAM CRACKING TOOL PACK V2.0
 
 ## Related
 
