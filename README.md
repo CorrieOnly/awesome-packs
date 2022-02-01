@@ -62,6 +62,13 @@
 - [Cracking / Hacking #48](https://gofile.io/d/cdL3r8) - [MEGA PACK] CHECKERS BY PRINCE JACK | +60 CHECKERS!
 - [Cracking / Hacking #49](https://gofile.io/d/60hNwI) - [CHECKERS FOR GAMERS V2.0] | CONTENT +30 TOOLS!
 - [Cracking / Hacking #50](https://gofile.io/d/aR9sba) - [MEGA PACK] PROXY TOOLS, GRABBERS AND COMBO TOOLS
+- [Cracking / Hacking #51](https://gofile.io/d/ivdPHV) - GENERATORS TOOLS PACK [THE BEST COLLECTION]
+- [Cracking / Hacking #52](https://gofile.io/d/VNbEFG) - [YOUTUBE - TWITCH] SOCIAL TOOLS PACK
+- [Cracking / Hacking #53](https://gofile.io/d/7VYnkW) - SPOTIFY GREATEST CRACKING TOOL PACK
+- [Cracking / Hacking #54](https://gofile.io/d/cZf7Lg) - RATS PACK V9 BY ARSIUM VOL.3
+- [Cracking / Hacking #55](https://gofile.io/d/FGN7u3) - RATS PACK V9 BY ARSIUM VOL.2
+- [Cracking / Hacking #56](https://gofile.io/d/wyKdxF) - RATS PACK V9 BY ARSIUM VOL.1
+- [Cracking / Hacking #57](https://gofile.io/d/jHqUNc) - [NETFLIX] GREATEST CRACKING TOOL PACK
 
 ## Related
 
