@@ -1,7 +1,7 @@
 ## Contents
 
 - [Leaked / Released Music](#leaked-music)
-- [Programming Languages](#programming-languages)
+- [Cracking / Hacking](#cracking)
 - [Related](#related)
 
 ## Leaked Music
@@ -10,9 +10,9 @@
 - [Leaked Music #2](https://mega.nz/folder/wVpDTIJL#seYSiiwxQQ6-hrzlZS3TAA) - Unreleased and Leaked Music/Songs
 - [Leaked Music #3](https://mega.nz/folder/m8VTUSJJ#9ouP8m1pMQaXkjPH0IvDFQ) - Unreleased and Leaked Music/Songs
 
-## Programming Languages
+## Cracking
 
-- [JavaScript](https://github.com/sorrycc/awesome-javascript#readme)
+- [Cracking / Hacking #1](https://gofile.io/d/ifZLuM) - 50 CRACKING TOOLS | ALL THE TOOLS YOU NEED TO CRACK
 
 ## Related
 
