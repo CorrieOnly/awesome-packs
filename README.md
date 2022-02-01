@@ -50,6 +50,11 @@
 - [Cracking / Hacking #36](https://gofile.io/d/BBDz92) - CRYPTO TOOLS AND BOTS | MINING, TRADING BOTS, BRUTE CHECKERS
 - [Cracking / Hacking #37](https://gofile.io/d/iAX4Wg) - NETFLIX CRACKING TOOL PACK 2.0
 - [Cracking / Hacking #38](https://gofile.io/d/93DoVu) - STEAM CRACKING TOOL PACK V2.0
+- [Cracking / Hacking #39](https://gofile.io/d/zXVjQk) - CRACKING ESSENTIALS TOOLS PACK VOL.2
+- [Cracking / Hacking #40](https://gofile.io/d/WRFeno) - [UPDATE] CRACKING ESSENTIALS TOOLS PACK VOL.1
+- [Cracking / Hacking #41](https://gofile.io/d/XEs6oZ) - MAKE MONEY TOOLS PACK VOL.2
+- [Cracking / Hacking #42](https://gofile.io/d/c91FC1) - MAKE MONEY TOOLS PACK VOL.1
+- [Cracking / Hacking #43](https://gofile.io/d/2a4tJQ) - BEST RAT PACK COLLECTION VOL.2
 
 ## Related
 
