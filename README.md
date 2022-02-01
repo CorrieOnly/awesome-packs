@@ -13,6 +13,32 @@
 ## Cracking
 
 - [Cracking / Hacking #1](https://gofile.io/d/ifZLuM) - 50 CRACKING TOOLS | ALL THE TOOLS YOU NEED TO CRACK
+- [Cracking / Hacking #2](https://gofile.io/d/5d0BIY) - ULTIMATE CRACKING AND HACKING PACK VOL.1
+- [Cracking / Hacking #3](https://gofile.io/d/ELDV8D) - ULTIMATE CRACKING AND HACKING PACK VOL.2
+- [Cracking / Hacking #4](https://gofile.io/d/tmIywj) - ULTIMATE CRACKING AND HACKING PACK VOL.3
+- [Cracking / Hacking #5](https://gofile.io/d/KH5JBG) - ULTIMATE CRACKING AND HACKING PACK VOL.4
+- [Cracking / Hacking #6](https://gofile.io/d/YXj54G) - ORIGINAL OPENBULLETS PACK | LATEST BUILDS - CLEAN VERSION
+- [Cracking / Hacking #7](https://gofile.io/d/nnvQ3t) - ULTIMATE SPOTIFY CRACKING PACK [20+ TOOLS]
+- [Cracking / Hacking #8](https://gofile.io/d/gLv8el) - NETFLIX ULTIMATE CRACKING PACK | 45+ TOOLS
+- [Cracking / Hacking #9](https://gofile.io/d/QH4dgg) - ULTIMATE DISCORD TOOLS PACK [20+ TOOLS] HACK - PLUGIN - SPAMMER - TOOLS AND MORE
+- [Cracking / Hacking #10](https://gofile.io/d/u7gT0r) - HASH TOOLS PACK [UNHASH SECRET PASSWORDS]
+- [Cracking / Hacking #11](https://gofile.io/d/2K8iKW) - COMBO TOOLS | MAKE YOUR HQ COMBO!
+- [Cracking / Hacking #12](https://gofile.io/d/hf85Pf) - CRYPTERS PACK | HIDE VIRUSES AND KEYLOGGERS
+- [Cracking / Hacking #13](https://gofile.io/d/b4C2Wr) - MASSIVE CRACKING AND HACKING PACK LEAK 16GB | FOLDER MEGA PREMIUM
+- [Cracking / Hacking #14](https://gofile.io/d/i6eLTp) - 300+ MIXED TOOLS AND CHECKERS | MEGA PREMIUM FOLDER
+- [Cracking / Hacking #15](https://gofile.io/d/u2Zvsm) - DISCORD CRACKING TOOLS PACK
+- [Cracking / Hacking #16](https://gofile.io/d/10suQQ) - ALL TOOLS AND CHECKERS BY KIDUX 2021
+- [Cracking / Hacking #17](https://gofile.io/d/o8m0GC) - RANDOM CHECKERS & UTILITIES PROGRAMS | 70+ TOOLS!
+- [Cracking / Hacking #18](https://gofile.io/d/ocmbhZ) - VPN CHECKERS PACK
+- [Cracking / Hacking #19](https://gofile.io/d/OxOHSV) - TWITCH TOOLS PACK
+- [Cracking / Hacking #20](https://gofile.io/d/MGWPgZ) - CRYPTO MINERS AND UTILITIES TOOLS | MINERS - BOTS - TRADING TOOLS AND MORE
+- [Cracking / Hacking #21](https://gofile.io/d/dPRDdH) - [PACK] STORM CHECKER V2.6.0.2 BY MR. VIPER | 450+ LATEST CONFIGS INCLUDEED
+- [Cracking / Hacking #22](https://gofile.io/d/7Afqje) - PAID PROXY TOOLS [PREMIUM PACK] | GET HQ PROXIES!
+- [Cracking / Hacking #23](https://gofile.io/d/p6isgY) - 4 TOOLS USEFUL TO MAKE PASSWORDS COMBINATIONS!
+- [Cracking / Hacking #24](https://gofile.io/d/A37Hyx) - BEST CHECKERS PACK COLLECTION | 130+ CRACKING TOOLS
+- [Cracking / Hacking #25](https://gofile.io/d/0fhz14) - BOTS AND AUTOMATED TOOLS PACK | AUTOMATE YOUR TASKS NOW!
+- [Cracking / Hacking #26](https://gofile.io/d/nOT3eb) - CHECKERS BY X-GOGARO
+- [Cracking / Hacking #27](https://gofile.io/d/GRcmgz) - CRACKING ESSENTIALS TOOLS V2.0
 
 ## Related
 
